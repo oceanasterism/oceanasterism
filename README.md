@@ -5,6 +5,13 @@
   .
 <div align="center">  ╭─〔❨✧✧❩〕─╮
 <div align="center"> been living under a rock, inactive in most of my social medias but discord so idk what's happening online
+  .
+  
+<div align="center"> c+h, sitting with is ALWAYS WELCOMED don't hesitate to approch me when you are in need of it! 
+<div align="center"> quick reminder; sometimes i turn off my public chats off so don't take it in the heart if you think that i was ignoring your chat! very sorry!
+
+  .
+<div align="center"> pfp doesn't belong to me ;ctto
 
   .
 <div align="center"> always online here in pony town i rarely get off but i am usually offtab though, i only check when im about to disconnect, i only yap when i have a friend to yap with or a moot/stranger (soon to be friend)
@@ -21,9 +28,5 @@
 <div align="center"> its not that im mad or anything its just fr so unmotivating to not go around in public again to prove that i don't copy nor had intensions in the first place
   
   .
-<div align="center"> c+h, sitting with is ALWAYS WELCOMED don't hesitate to approch me when you are in need of it! 
-<div align="center"> quick reminder; sometimes i turn off my public chats off so don't take it in the heart if you think that i was ignoring your chat! very sorry!
 
-  .
-<div align="center"> pfp doesn't belong to me ;ctto
 <div align="center">╰─〔❨✧✧❩〕─╯

@@ -9,7 +9,7 @@
   
   .
 
-  <div align="center"> motto of the day; "natatae nako, pwede maki cr?"
+  <div align="center"> motto of the day; "napakalamig, naulan..pwede ba yakapin moko?"
 
 .
   

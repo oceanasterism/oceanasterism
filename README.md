@@ -29,7 +29,7 @@
 
   .
 <div align="center"> always online here in pony town i rarely get off but i am usually offtab though, i only check when im about to disconnect, i only yap when i have a friend to yap with or a moot/stranger (soon to be friend)
-<div align="center"> Playtime 181d 13h 50m as of 10/22/24 2:13pm GMT+8
+<div align="center"> Playtime 184d 10h 28m as of 10/28/24 1:39am GMT+8
 <div align="center"> afk most of the times, please do w2i if you want to grab my attention or you want to interact!
   
   .

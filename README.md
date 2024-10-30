@@ -9,7 +9,7 @@
   
   .
 
-  <div align="center"> motto of the day; "nagugutom nako"
+  <div align="center"> PoeRan/RanPoe/Edran brainrot, me n kara brainstorm PoeRan stuff (a lot)
 
 .
   
@@ -29,12 +29,8 @@
 
   .
 <div align="center"> always online here in pony town i rarely get off but i am usually offtab though, i only check when im about to disconnect, i only yap when i have a friend to yap with or a moot/stranger (soon to be friend)
-<div align="center"> Playtime 184d 10h 28m as of 10/28/24 1:39am GMT+8
+<div align="center"> Playtime 185d 7h 19m as of 10/30/24 11:55pm GMT+8
 <div align="center"> afk most of the times, please do w2i if you want to grab my attention or you want to interact!
-  
-  .
-  
-<div align="center"> PoeRan/RanPoe/Edran brainrot
   
   .
 

@@ -17,7 +17,7 @@
   
   .
 
-<div align="center"> i do not care if you've come to take inspiration of my ponies without asking nor copy it idgaf
+<div align="center"> i do not care if you've come to take inspiration of my ponies without asking nor copy it idgaf just not the colors?
   
   .
   

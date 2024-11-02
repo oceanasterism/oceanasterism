@@ -13,7 +13,7 @@
 
 .
   
-<div align="center"> been living under a rock, inactive in most of my social medias but discord so idk what's happening online
+<div align="center"> been living under a rock, inactive in most of my social medias but discord and sometimes watch yt dramas so idk what's happening online
   
   .
 

@@ -18,7 +18,7 @@
   .
 
 <div align="center"> i do not care if you've come to take inspiration of my ponies without asking nor copy it idgaf just not the colors? 
-  <div align="center"> you are free to copy the patterns of the clothing and face shading pattern and free to choose whatever your preference color is, just don't copy the way i shaded mine, you don't wanna be called a copycat for that 😭
+  <div align="center"> you are free to copy the patterns of the clothing and face shading pattern and free to be creative with the colors you prefer, just don't copy the way i shaded mine, you don't wanna be called a copycat for that 😭
   
   .
   

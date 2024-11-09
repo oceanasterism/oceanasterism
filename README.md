@@ -10,6 +10,7 @@
   .
 
   <div align="center"> PoeRan/RanPoe/Edran brainrot, me n kara brainstorm PoeRan stuff (a lot)
+   <div align="center"> also important!! matching names ≠ likes the ship (besides PoeRan and YokoMushi)
 
 .
   

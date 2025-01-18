@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=shiningumbreon)
 
-AGE BOUNDARIES / LIMIT! below 14 plz dni or DON'T BE WEIRD because ill cry if you do. I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
+AGE BOUNDARIES / LIMIT! below 14 plz dni or JUST DON'T BE WEIRD AROUND ME NOR WITH MY FRIENDS THANKS, ill cry if you do. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
 
 c+h freely, I'm always semi-afk. Whispers is preferred if you want to talk, my public chat can be off sometimes. i mostly chat through my party members
 

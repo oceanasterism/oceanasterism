@@ -6,6 +6,7 @@ c+h freely, I'm always offtab or afk. Whispering is highly preferred when you wa
 i might turn off public chats when i get wayyyy too overwhelmed or is not in the mood to talk at all.
 
 im usually seen above market or near bsd area on the pine tree with rock, i honestly don't know why i like to stay on that particular spot. i can also be seen around with my close friends or wherever they are
+i am also around the crk area whenever i feel like sitting there!
 
 i am an semi-social person i rarely interact first,i SWEAR.. i am nice and will try my best to talk to you, i am not sensitive or whatsoever I generally don't care about stuff you do if its nothing weird likeee... REALLLLYYY WEIRRDDD..
 quick warning is that once i open up to you, you might see the real me. 

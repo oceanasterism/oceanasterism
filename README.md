@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=shiningumbreon)
 
-AGE BOUNDARIES / LIMIT! below 14 plz dni if u want or JUST DON'T BE WEIRD AROUND ME NOR WITH MY FRIENDS THANKS, ill stop talking to you immediately if you start talking about weird stuff that i may or my friends may not or might not like at all. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
+AGE BOUNDARIES / LIMIT! below 14 plz dni or JUST DON'T BE WEIRD AROUND ME NOR WITH MY FRIENDS THANKS, ill stop talking to you immediately if you start talking about way too weird stuff that i may not or my friends may not like at all. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
 
 c+h freely, I'm always offtab or afk. Whispering is highly preferred when you want to yap to me i don't mind. sorry in advance if i didn't see your whisper.
 i might turn off public chats when i get wayyyy too overwhelmed or is not in the mood to talk at all.

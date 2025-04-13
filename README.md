@@ -7,6 +7,8 @@ i also don't want to interact with kids (below 14) plz be honest with ur age whe
 i am not cool, im kool!
 i do not care if u copied the patterns of my pony just dont take the colorz plz.. ok? be original!!
 
+MORE HERE!! [CLICK!](https://rentry.co/kextendedbyi)
+
 
 shoutout to the ppl(s) who immediately copied some of my pony skins ENTIRELY, i hate-love y'all <3 
 

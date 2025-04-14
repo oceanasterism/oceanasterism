@@ -4,7 +4,7 @@
 no other dnis just basic dni, nd don't be a weido plzzzz thx 
 i also don't want to interact with kids (below 14) plz be honest with ur age when u talk to me or when u ever introduce yourself to me.
 
-PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME AND maybe chat threwww whispers tewwww :33 
+PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME ye dont have 2 ask for permission too!! just go for it!!! AND maybe chat threwww whispers tewwww :33 
 
 i am not cool, im awesemmm!
 

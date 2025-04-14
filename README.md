@@ -7,6 +7,7 @@ i also don't want to interact with kids (below 14) plz be honest with ur age whe
 PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME ye dont have 2 ask for permission too!! just go for it!!! AND maybe chat threwww whispers tewwww :33 
 
 i am not cool, im awesemmm!
+i have a habit of roaming around the map if im bored
 
 i do not care if u copied the patterns of my pony just dont take the colorz plz.. ok? be original with theee colorsss!!
 

@@ -6,6 +6,8 @@ i also don't want to interact with kids (below 14) plz be honest with ur age whe
 
 PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME ye dont have 2 ask for permission too!! just go for it!!! AND maybe chat threwww whispers tewwww :33 
 
+I've been in the crk fandom since the hollyberry update arouunddd 2020 i think or the frost queen on 2021 since that was the time i for real played the gamee.. im the Madeleine pony around the area in the past :p because i love that himbo and his coffee addict husband (i hopw they're died /ref /j) espresseline fan since day 1 in crk and crob tooo
+
 i am not cool, im awesemmm!
 i have a habit of roaming around the map if im bored
 

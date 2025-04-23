@@ -15,7 +15,7 @@ learn more abt me HERE!! [CLICK!](https://rentry.co/kextendedbyi)
 
 
 shoutout to the ppl(s) who copied some of my pony skins ENTIRELY even though i just made some of them HOURS or DAYS ago, i hate-love y'all <3 
-watch me put y'all in a GitHub gallery, if i see some of you or my friends does. 🫶
+watch me put y'all in a rentry gallery, if i see some of you or my friends does. 🫶
 
 ALSO HUGE THANKS FOR COLORING MY [TREE](https://colormytree.me/2024/01JE9BFHHT5JXFM1W4WKA4SYAV)! ill put my replies on my strawpage soon!
 

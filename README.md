@@ -6,8 +6,6 @@ i also don't want to interact with kids (below 14) plz be honest with ur age whe
 
 PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME ye dont have 2 ask for permission too!! just go for it!!! AND maybe chat threwww whispers tewwww :33 
 
-I've been in the crk fandom since the hollyberry update arouunddd 2020 i think or the frost queen on 2021 since that was the time i for real played the gamee.. im the Madeleine pony around the area in the past :p because i love that himbo and his coffee addict husband (i hopw they're died /ref /j) espresseline fan since day 1 in crk and crob tooo
-
 i am not cool, im awesemmm!
 i have a habit of roaming around the map if im bored
 
@@ -17,6 +15,7 @@ learn more abt me HERE!! [CLICK!](https://rentry.co/kextendedbyi)
 
 
 shoutout to the ppl(s) who copied some of my pony skins ENTIRELY even though i just made some of them HOURS or DAYS ago, i hate-love y'all <3 
+watch me put y'all in a GitHub gallery, if i see some of you or my friends does. 🫶
 
 ALSO HUGE THANKS FOR COLORING MY [TREE](https://colormytree.me/2024/01JE9BFHHT5JXFM1W4WKA4SYAV)! ill put my replies on my strawpage soon!
 

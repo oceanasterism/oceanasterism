@@ -11,6 +11,7 @@ i have a habit of roaming around the map if im bored
 i do not care if u copied the patterns of my pony just dont take the colorz plz.. ok? be original with theee colorsss!!
 
 learn more abt me HERE!! [CLICK!](https://rentry.co/kextendedbyi)
+**i wont be updating my strawpage gimmicks at the moment until v3 is up!**
 
 
 shoutout to the ppl(s) who copied some of my pony skins ENTIRELY even though i just made some of them HOURS or DAYS ago, i hate-love y'all <3 

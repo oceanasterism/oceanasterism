@@ -1,23 +1,16 @@
 ![Image](https://github.com/user-attachments/assets/1986562b-d49d-4113-9b2f-6a40e09107f3)
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=shiningumbreon)
+🌧️ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=shiningumbreon)
 
 
-no other dnis just basic dni, nd don't be a weido plzzzz thx 
-i also don't want to interact with kids (below 14) plz be honest with ur age when u talk to me or when u ever introduce yourself to me.
+no other dnis just basic dni, nd don't be a weido plzzzz thx.
 
 PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME ye dont have 2 ask for permission too!! just go for it!!! AND maybe chat threwww whispers tewwww :33 
-
-i have a habit of roaming around the map if im bored
 
 i do not care if u copied the patterns of my pony just dont take the colorz plz.. ok? be original with theee colorsss!!
 
 learn more abt me HERE!! [CLICK!](https://rentry.co/kextendedbyi)
-**i wont be updating my strawpage gimmicks at the moment until v3 is up!**
+**i wont be updating my strawpage gimmicks at the moment until the drawing problem is fixed!**
 
-
-shoutout to the ppl(s) who copied some of my pony skins ENTIRELY even though i just made some of them HOURS or DAYS ago, i hate-love y'all <3 
-watch me put y'all in a rentry gallery, if i see some of you or my friends does. 🫶
-
-ALSO HUGE THANKS FOR COLORING MY [TREE](https://colormytree.me/2024/01JE9BFHHT5JXFM1W4WKA4SYAV)! ill put my replies on my strawpage soon!
+ALSO HUGE THANKS FOR COLORING MY [TREE](https://colormytree.me/2024/01JE9BFHHT5JXFM1W4WKA4SYAV)!
 

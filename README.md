@@ -1,6 +1,6 @@
-　　　[ａｔａ。](https://oceanasterism.atabook.org/) 　　　　|　　　　[ｓｔｒａｗｐａｇｅ。](https://oceanasterism.straw.page/)　　　|　　　　[ｐｒｏｎｏｕｎｓ。ｃｃ](https://pronouns.cc/@morrowly)　　　　　　
+　　[ａｔａ。](https://oceanasterism.atabook.org/)　　|　　[ｓｔｒａｗｐａｇｅ。](https://oceanasterism.straw.page/)　　|　　[ｐｒｏｎｏｕｎｓ。ｃｃ](https://pronouns.cc/@morrowly)　　
 
-<p align="center">♪
+　　　　　　　　　　♪
 
 ![Image](https://github.com/user-attachments/assets/1986562b-d49d-4113-9b2f-6a40e09107f3)
 > 「胸の奥をなぞるような、　温度まで掻き消されて。」

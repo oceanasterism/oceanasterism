@@ -1,4 +1,4 @@
-　　[ａｔａ。](https://oceanasterism.atabook.org/)　　|　　[ｓｔｒａｗｐａｇｅ。](https://oceanasterism.straw.page/)　　|　　[ｐｒｏｎｏｕｎｓ。ｃｃ](https://pronouns.cc/@morrowly)　　
+[ａｔａ。](https://oceanasterism.atabook.org/)　　|　　[ｓｔｒａｗｐａｇｅ。](https://oceanasterism.straw.page/)　　|　　[ｐｒｏｎｏｕｎｓ。ｃｃ](https://pronouns.cc/@morrowly)　　
 
 　　　　　　　　　　　♪
 

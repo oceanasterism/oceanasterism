@@ -1,4 +1,4 @@
-　　[ｐｒｏｎｏｕｎｓ。ｃｃ](https://pronouns.cc/@morrowly)　　
+　　　　[ｐｒｏｎｏｕｎｓ。ｃｃ](https://pronouns.cc/@morrowly)　　
 
 　　　　　　　　　　　♪
 

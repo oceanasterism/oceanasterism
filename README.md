@@ -1,4 +1,4 @@
-　　　　　　[ｐｒｏｎｏｕｎｓ。ｃｃ](https://pronouns.cc/@morrowly)　　
+　　　　　　[ｐｒｏｎｏｕｎｓ。ｃｃ](https://pronouns.cc/@morrowly)　　|    [ａｔａｂｏｏｋ](https://oceanasterism.atabook.org/)
 
 　　　　　　　　　　　♪
 

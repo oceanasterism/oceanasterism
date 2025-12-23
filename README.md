@@ -1,4 +1,4 @@
-[ａｔａｂｏｏｋ](https://oceanasterism.atabook.org/)
+[ａｔａｂｏｏｋ](https://oceanasterism.atabook.org/) [atabook2](https://bloomfest.atabook.org/)
 
 　　　　　　　　　　　♪
 
